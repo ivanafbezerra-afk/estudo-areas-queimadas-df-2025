@@ -1,0 +1,1 @@
+# estudo-areas-queimadas-df-2025
